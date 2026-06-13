@@ -1,6 +1,6 @@
 <p align="center">
 
-![image alt](kanade yoisaki.jpeg)
+![image alt](Başlıksız23_20260613164103.png)
 
 <p align="center">
  wip because im lazy
