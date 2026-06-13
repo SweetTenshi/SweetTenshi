@@ -2,4 +2,6 @@
 
 ![image alt](Başlıksız23_20260613164103.png)
 
-wip
+<p align="center">
+
+  wip
