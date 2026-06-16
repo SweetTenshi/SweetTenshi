@@ -4,3 +4,6 @@
 
 <p align="center">
  "Dont Hug Me, Im Abstracting!"
+<p align="center">
+ Noe 
+ she/her
