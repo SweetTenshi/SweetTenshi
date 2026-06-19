@@ -4,4 +4,5 @@
 
 <p align="center">
  "In the end, everyone shall end up in the bottom of Hell"
- (They’ll all be dragged down there.)
+<p align="center">
+(They’ll all be dragged down there.
