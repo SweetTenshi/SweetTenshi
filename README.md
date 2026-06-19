@@ -3,4 +3,5 @@
  ![image alt](Başlıksız23_20260613164103.png)
 
 <p align="center">
- "Dont Hug Me, Im Abstracting!"
+ "In the end, everyone shall end up in the bottom of Hell"
+ (They’ll all be dragged down there.)
