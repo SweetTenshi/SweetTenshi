@@ -1,6 +1,6 @@
 <p align="center">
 
- ![image alt](Başlıksız23_20260613164103.png)
+ ![image alt](★Just Like in My Dreams★.jpeg)
 
 <p align="center">
  "In the end, everyone shall end up in the bottom of Hell"
