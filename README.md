@@ -5,5 +5,4 @@
 <p align="center">
  Kanade Fictkin , dbls dni/iwec
  <p align="center">
- i just like changing pfp, 
-  this is Kokoro from BanG Dream
+ Iwec / dni(uid) , links r in remake :(
