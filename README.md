@@ -3,7 +3,7 @@
  ![image alt](Screenshot_2026-07-02-23-24-04-372_com.miui.gallery.png)
 
  <p align="center">
-  • HEAVY Yoisaki Kanade and Tsurumaki kokoro fictkin!! doubles iwec!
+  • HEAVY Yoisaki Kanade and Tsurumaki Kokoro fictkin!! doubles iwec!
   <p align="center">
    • Iwec / dni(uid) 
  <p align="center">
