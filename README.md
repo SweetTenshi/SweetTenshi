@@ -17,4 +17,4 @@
 
 
 <p align="center">
-ILL ADD SP FOR MORE INFO of im not lazy~~
+ILL ADD SP FOR MORE INFO of im not lazy~~ ALSO I FOLLOW BACK YAY!
