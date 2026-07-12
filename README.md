@@ -4,4 +4,7 @@
 
  <p align="center">
  • Iwec / dni(uid) 
- • hi
+ <p align="center">
+ •Bmf Im really nice trust me
+ <p align="center">
+ •PLEASE if if you talk with me randomly and i stop replying that means i dont wanna talk, respect my boundaries.
