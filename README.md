@@ -20,4 +20,4 @@
 
 
 <p align="center">
-ILL ADD SP FOR MORE INFO of im not lazy~~ ALSO I FOLLOW BACK YAY!
+ILL ADD SP FOR MORE INFO of im not lazy~~ (sorry :( abotu my laziness)
