@@ -12,6 +12,9 @@
  • PLEASE if you start to talk w/ me randomly and i stop replying that means i dont wanna talk, respect my boundaries.
  <p align="center">
  • Rude to me? I'll be rude to you. Simple tit for tat.
+ <p align="center">
+ • if you see me being rude and say "ur github says "im nice" and ur not" without knowing whats happening then don't try, i know how to apologize .
+ 
 
 
 
